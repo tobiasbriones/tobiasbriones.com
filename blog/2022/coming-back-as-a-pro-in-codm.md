@@ -44,7 +44,7 @@ but I'm skilfully enough to get by as a PRO.
 
 Back in the day, I just had a low-end phone or tablet, I was not able to play
 well at all because of lag. I still played quite well. Now I'm a veteran that
-has a flagship, and four fingers to deploy ay operations against anyone facing
+has a flagship, and four fingers to deploy any operations against anyone facing
 me online.
 
 After some gap, while being off the game, this was a great welcome back.
